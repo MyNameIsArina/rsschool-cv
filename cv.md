@@ -1,0 +1,11 @@
+# Irina Savchits
+> INFORMATION SYSTEMS ARCHITECT
+
+## CONTACT
+
+> **Phone**: +375-44-759-77-49
+>
+> **Email**: 7597749@gmail.com
+> 
+## ABOUT ME
+> I WORK AND STUDY
